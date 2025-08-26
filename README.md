@@ -14,5 +14,14 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-my name is iesha long 
- 
+my name is iesha long and i am 21 years old 
+how to reach me ...
+instagram : https://www.instagram.com/ieshajlong/
+Facebook : https://www.facebook.com/share/19sDzxNFH2/?mibextid=wwXIfr
+email: ieshalong308@gmail.com
+linkedin : www.linkedin.com/in/iesha-long-312910231
+
+pronouns : she/her
+
+fun fact: i have a cute little bichon frise she is 12 years old and her name is snowflake 
+
